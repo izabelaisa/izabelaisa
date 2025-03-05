@@ -1,5 +1,5 @@
 ### Hi 👋
-Me chamo Izabela, tenho 24 anos e moro em Belém-Pa!
+Me chamo Izabela, tenho 25 anos e moro em Belém-Pa!
 
 🎓👩‍💻 Sou formada em Análise e Desenvolvimento de Sistemas pela Universidade Estácio de Sá (UNESA)
 
